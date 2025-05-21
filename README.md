@@ -1,0 +1,2 @@
+# grandburadaaa
+Grandpasha sakinleri çıldırdııı
